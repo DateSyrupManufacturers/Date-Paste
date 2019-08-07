@@ -1,5 +1,5 @@
 # Date Paste: What Makes This Product An Ideal Alternative To Sugar?
-<img src="https://aboutme.imgix.net/background/users/d/a/t/datepaste_1565163649_896.jpg?q=40&dpr=2&auto=format&fit=max&w=120&h=120&rect=794,0,3115,3115" alt="Date Paste" style="float:left;width:350px;height:300px;">
+<center><img src="https://aboutme.imgix.net/background/users/d/a/t/datepaste_1565163649_896.jpg?q=40&dpr=2&auto=format&fit=max&w=120&h=120&rect=794,0,3115,3115" alt="Date Paste" style="float:left;width:350px;height:300px;"></center>
 
 For individuals who are concerned with their health, a <a href="https://globalfoods.uk.com/date-paste">date paste</a> is one of the best sugar alternatives today. It tastes much like caramel and is made by turning dates into a fine paste. It can attain an identical consistency to sugar by drying and grinding it into granules without resorting to complex methods. Above all, it offers numerous health benefits without losing excellent taste when utilised as a sugar substitute.
 
